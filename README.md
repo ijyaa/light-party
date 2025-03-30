@@ -8,7 +8,7 @@ Light sequence working on board:
 
 https://github.com/user-attachments/assets/fb8a9c3f-e476-4232-be33-9441e6699c61
 
-End product: 
+End product (it's supposed to be a heart with arrow across it lol)
 
 https://github.com/user-attachments/assets/570b4c9d-c014-485a-82d2-94d8103391b3
 
